@@ -6,3 +6,5 @@
 
 **不建议与任何人私聊**，也不建议在淘宝等平台购买付费服务。
 若确有必要接受对方的私聊，请确认对方为**本组织的成员**（表现为评论右上角有`Member`字样）。
+
+头像中的人物为[《别当欧尼酱了》](https://onimai.fandom.com/zh)中的[绪山真寻](https://onimai.fandom.com/zh/wiki/%E7%BB%AA%E5%B1%B1%E7%9C%9F%E5%AF%BB)。
